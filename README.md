@@ -1,1 +1,0 @@
-# halgurdtaher.github.io
